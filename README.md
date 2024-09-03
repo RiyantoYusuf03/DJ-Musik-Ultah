@@ -1,1 +1,7 @@
-# DJ-Musik-Ultah
+![Foto1](https://github.com/user-attachments/assets/e97031cd-22de-4ebb-9dfa-e27ce61ecf1a)
+![foto4](https://github.com/user-attachments/assets/21969c53-3fb9-49f3-a646-1d3f9ccf9b92)
+![Foto3](https://github.com/user-attachments/assets/354abde7-c92f-4264-b7d7-3942b7446b7e)
+![Foto2](https://github.com/user-attachments/assets/a44c2624-f09e-42f9-9098-175012d691ec)
+![foto7](https://github.com/user-attachments/assets/c83af105-2130-4eab-bca8-c9ab2b7b5862)
+![Foto6](https://github.com/user-attachments/assets/b8242914-037b-4d91-862d-05f0dd38dc47)
+![Foto5](https://github.com/user-attachments/assets/71cd0c98-77b2-49ca-be22-47ec769fb338)
